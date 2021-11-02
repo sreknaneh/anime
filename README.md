@@ -1,2 +1,0 @@
-# Anime
- my favorate anime
